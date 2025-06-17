@@ -1,0 +1,1 @@
+I am a 18 years old highschool student who is now embarking on AI science college course. My dream is too immersed in technology field and gaining high enough income to retired my parent. I am trying to materializing that dream everyday, starting from now!
